@@ -32,7 +32,7 @@ Please refer to the text below in Chinese (Simplified).
 
 ### 简介
 
-本作品首发于膜乎。[→传送门](https://mohu.rocks/article/2126)<br>
+本作品首发于膜乎。[→传送门](https://mohu.rocks/article/2189)<br>
 <br>
 切勿在中国墙内传播本作品！
 
