@@ -24,7 +24,7 @@ Please refer to the text below in Chinese (Simplified).
 
 * Creative Commons: CC BY-NC 3.0
 	* Commercial use of this creation is strictly prohibited.
-	* You must include the author's name "SAM TOKI STUDIO" or "Sam Toki" in your creation if it is based on this creation.
+	* You must include the author's name "Phillweston" in your creation if it is based on this creation.
 
 -----
 
